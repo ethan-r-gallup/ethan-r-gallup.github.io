@@ -1,1 +1,0 @@
-# ethan-r-gallup.github.io
